@@ -1,5 +1,5 @@
 ## Hi there 👋
-Meu nome é João witor dos Santos 
+Eu sou O João witor Dos santos Eu tenho 16 anos e No meu futuro tenho um sonho de me formar em psicologia no futuro 
 
 <!--
 **joaowitorsantos-crypto/joaowitorsantos-crypto** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
